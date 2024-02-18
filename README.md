@@ -5,5 +5,5 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: stop
-- last year
+- happy new year
 
