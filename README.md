@@ -5,9 +5,9 @@
 - 📫 How to reach me paramaunt...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: stop
-- happy new year of dragon AGE of imperia
-- free gaming
-- for quest
-- final february
-- nice work day
-- excellent eclipse my town
+- ⚡ happy new year of dragon AGE of imperia
+- ⚡ free gaming
+- ⚡ for quest
+- ⚡ final february
+- ⚡ nice work day
+- ⚡ excellent eclipse my town
