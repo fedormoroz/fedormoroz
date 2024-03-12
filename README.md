@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @fedormoroz
-- 👀 I’m interested in ...
+- 👀 I’m interested in food
 - 🌱 I’m currently learning books
 - 💞️ I’m looking to collaborate on friends
 - 📫 How to reach me paramaunt...
