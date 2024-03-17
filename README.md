@@ -4,9 +4,9 @@
 - 💞️ I’m looking to collaborate on friends
 - 📫 How to reach me paramaunt...
 - 😄 Pronouns: library and tower
-- ⚡ Fun fact: stop
-- ⚡ happy new year of dragon AGE of imperia
-- ⚡ free gaming
+- 👋 Fun fact: stop
+- 👋 happy new year of dragon AGE of imperia
+- 👋 free gaming
 - ⚡ for quest
 - ⚡ final february 29 th
 - ⚡ nice work day
