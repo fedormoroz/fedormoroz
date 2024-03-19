@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning books
 - 💞️ I’m looking to collaborate on friends
 - 📫 How to reach me paramaunt...
-- 😄 Pronouns: library and tower
+- 😄 Pronouns: library and tower stone
 - 👋 Fun fact: stop
 - 👋 happy new year of dragon AGE of imperia
 - 👋 free gaming
