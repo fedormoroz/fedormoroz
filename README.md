@@ -2,7 +2,7 @@
 - 👀 I’m interested in food and banan
 - 🌱 I’m currently learning books
 - 💞️ I’m looking to collaborate on friends
-- 📫 How to reach me paramaunt...
+- 📫 How to reach me paramaunt pictures
 - 😄 Pronouns: library and tower stone
 - 👋 Fun fact: stop
 - 👋 happy new year of dragon AGE of imperia
