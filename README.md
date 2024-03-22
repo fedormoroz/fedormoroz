@@ -7,7 +7,7 @@
 - 👋 Fun fact: stop aircraft
 - 👋 happy new year of dragon AGE of imperia
 - 👋 free gaming
-- ⚡ for quest
+- ⚡ for quest farcaster
 - ⚡ final february 29 th
 - ⚡ nice work day
 - ⚡ excellent eclipse my town
