@@ -6,7 +6,7 @@
 - 😄 Pronouns: library and tower stone
 - 👋 Fun fact: stop aircraft
 - 👋 happy new year of dragon AGE of imperia
-- 👋 free gaming
+- 👋 free hot gaming
 - ⚡ for quest farcaster
 - ⚡ final february 29 th
 - ⚡ nice work day
