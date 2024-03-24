@@ -9,6 +9,6 @@
 - 👋 free hot gaming
 - ⚡ for quest farcaster
 - ⚡ final february 29 th
-- ⚡ nice work day
+- ⚡ nice work - good day
 - ⚡ excellent eclipse my town
 - ⚡ to the moon nemo memo drift
