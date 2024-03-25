@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on friends
 - 📫 How to reach me paramaunt pictures
 - 😄 Pronouns: library and tower stone
-- 👋 Fun fact: stop aircraft
+- 👋 Fun fact: stop aircraft born
 - 👋 happy new year of dragon AGE of imperia
 - 👋 free hot gaming
 - ⚡ for quest farcaster
