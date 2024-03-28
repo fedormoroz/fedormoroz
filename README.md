@@ -9,7 +9,7 @@
 - 👋 free hot gaming
 - ⚡ for quest farcaster
 - ⚡ final february 29 th
-- ⚡ nice work - good day
+- ⚡ nice work - good day today
 - ⚡ excellent eclipse my town
 - ⚡ to the moon nemo memo drift
 - CARV protokol
