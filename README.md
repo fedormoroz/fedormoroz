@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @fedormoroz
 - 👀 I’m interested in food and banan
 - 🌱 I’m currently learning books
-- 💞️ I’m looking to collaborate on friends
+- 💞️ I’m looking to collaborate on friends dj
 - 📫 How to reach me paramaunt pictures
 - 😄 Pronouns: library and tower stone
 - 👋 Fun fact: stop aircraft born
