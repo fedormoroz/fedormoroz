@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fedormoroz
 - 👀 I’m interested in food and banan
-- 🌱 I’m currently learning books
+- 🌱 I’m currently learning books pokemuz
 - 💞️ I’m looking to collaborate on friends dj socket
 - 📫 How to reach me paramaunt pictures
 - 😄 Pronouns: library and tower stone
