@@ -2,7 +2,7 @@
 - 👀 I’m interested in food and banan
 - 🌱 I’m currently learning books pokemuz
 - 💞️ I’m looking to collaborate on friends dj socket
-- 📫 How to reach me paramaunt pictures
+- 📫 How to reach me paramaunt pictures knoledge
 - 😄 Pronouns: library and tower stone
 - 👋 Fun fact: stop aircraft born
 - 👋 happy new year of dragon AGE of imperia
