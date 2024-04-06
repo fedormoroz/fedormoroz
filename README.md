@@ -12,4 +12,4 @@
 - ⚡ nice work - good day today memeday
 - ⚡ excellent eclipse my town
 - ⚡ to the moon nemo memo drift
-- CARV protokol hall
+- ⚡ CARV protokol hall
