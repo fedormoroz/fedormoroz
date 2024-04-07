@@ -10,6 +10,6 @@
 - ⚡ for quest farcaster
 - ⚡ final february 29 th
 - ⚡ nice work - good day today memeday
-- ⚡ excellent eclipse my town
+- ⚡ excellent eclipse my down town
 - ⚡ to the moon nemo memo drift
 - ⚡ CARV protokol hall
