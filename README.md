@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning books pokemuz
 - 💞️ I’m looking to collaborate on friends dj socket
 - 📫 How to reach me paramaunt pictures knoledge
-- 😄 Pronouns: library and tower stone
+- 😄 Pronouns: library and tower stone plane
 - 👋 Fun fact: stop aircraft born los petros
 - 👋 happy new year of dragon AGE of imperia
 - 👋 free hot gaming zone
