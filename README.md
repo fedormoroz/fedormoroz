@@ -7,7 +7,7 @@
 - 👋 Fun fact: stop aircraft born los petros
 - 👋 happy new year of dragon AGE of imperia
 - 👋 free hot gaming zone
-- ⚡ for quest farcaster lamabot
+- ⚡ for quest farcaster lamabot slame
 - ⚡ final february 29 th
 - ⚡ nice work - good day today memeday
 - ⚡ excellent eclipse my down town
