@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on friends dj socket
 - 📫 How to reach me paramaunt pictures knoledge
 - 😄 Pronouns: library and tower stone plane
-- 👋 Fun fact: stop aircraft born los petros
+- 👋 Fun fact: stop aircraft born los petros state
 - 👋 happy new year of dragon AGE of imperia
 - 👋 free hot gaming zone
 - ⚡ for quest farcaster lamabot slame
