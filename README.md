@@ -8,7 +8,7 @@
 - 👋 happy new year of dragon AGE of imperia
 - 👋 free hot gaming zone stETH
 - ⚡ for quest farcaster lamabot slame
-- ⚡ final february 29 th loran
+- ⚡ final february 29 th loran luban
 - ⚡ nice work - good day today memeday
 - ⚡ excellent eclipse my down town
 - ⚡ to the moon nemo memo drift carnag
