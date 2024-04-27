@@ -7,7 +7,7 @@
 - 👋 Fun fact: stop aircraft born los petros state
 - 👋 happy new year of dragon AGE of imperia
 - 👋 free hot gaming zone stETH
-- ⚡ for quest farcaster lamabot slame
+- ⚡ for quest farcaster lamabot slame loran
 - ⚡ final february 29 th loran luban
 - ⚡ nice work - good day today memeday
 - ⚡ excellent eclipse my down town
