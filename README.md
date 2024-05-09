@@ -15,4 +15,4 @@
 - ⚡ CARV protokol rollhall club many pts
 - cd-rom disk capture him popkorn change
 - formal normaldo folklor meta trace
-- long borrow
+- lend and borrow
