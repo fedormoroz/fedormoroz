@@ -5,7 +5,7 @@
 - 📫 How to reach me paramaunt pictures knoledge
 - 😄 Pronouns: library and tower stone plane stone 
 - 👋 Fun fact: stop aircraft born los petros state
-- 👋 happy new year of dragon AGE of imperia
+- 👋 happy new year of dragon AGE of imperia card
 - 👋 free hot gaming zone stETH daily pool
 - ⚡ for quest farcaster lamabot slame loran
 - ⚡ final february 29 th loran luban
