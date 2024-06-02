@@ -6,7 +6,7 @@
 - 😄 Pronouns: library and tower stone plane stone 
 - 👋 Fun fact: stop aircraft born los petros state
 - 👋 happy new year of dragon AGE of imperia card
-- 👋 free hot gaming zone stETH daily pool
+- 👋 free hot gaming zone stETH daily pool both
 - ⚡ for quest farcaster lamabot slame loran
 - ⚡ final february 29 th loran luban
 - ⚡ nice work - good day today memeday
