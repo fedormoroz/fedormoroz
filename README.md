@@ -10,6 +10,6 @@
 - ⚡ for quest farcaster lamabot slame loran spicy
 - ⚡ final february 29 th loran cap the sky luban nonce
 - ⚡ nice work - good day today memeday fox
-- ⚡ excellent eclipse my down town gawn
+- ⚡ excellent eclipse my down town gawn lock
 - ⚡ to the moon nemo memo drift carnag time
 - ⚡ CARV protokol rollhall club many pts game
